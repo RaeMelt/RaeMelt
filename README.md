@@ -1,16 +1,18 @@
 ### Hi there 👋
 
-<!--
-**RaeMelt/RaeMelt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I'm an Executive Assistant joining the Revenue team. :100: 
+
+I'm willing to learn new things and be a beginner. :pencil: 
+
+I'm committed to seeing my Executive succeed! :dizzy:  
+
+GitHub is a whole new world for me. :earth_americas:  
+
+I'm a girl Mom. :two_hearts: 
+
+My husband and I love to travel. :palm_tree: 
+
+We have a cat and a dog. :cat2: :dog: 
+![BW Family Square](https://user-images.githubusercontent.com/84856939/123112976-cc268900-d403-11eb-9885-0d6980e8b483.jpg)
