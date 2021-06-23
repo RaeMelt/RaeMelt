@@ -2,7 +2,7 @@
 
 
 
-I'm an Executive Assistant joining the Revenue team. :100: 
+I'm an Executive Assistant on the Revenue team. :100: 
 
 I'm willing to learn new things and be a beginner. :pencil: 
 
