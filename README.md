@@ -6,7 +6,7 @@ I'm a Sr. Business Ops Manager supporting the Revenue team. 🎉
 
 I love learning new things and accomplishing goals! :pencil: 
 
-I'm a girl Mom. :two_hearts: 
+I have two little girls and I'm a proud dance mom. :two_hearts: 👯
 
 My husband and I love to travel. :palm_tree: 
 
